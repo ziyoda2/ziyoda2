@@ -1,2 +1,2 @@
-### Hi there , I'm Ziyoda from Uzbekistan <img src="https://media0.giphy.com/media/gM5qFksULw54NMWyry/giphy.gif?cid=ecf05e47tcgtde6rep9uo4voln4bhdgfvq1mxaxnxa5pu4fx&ep=v1_stickers_search&rid=giphy.gif&ct=s" width="180px">
+### Hi there , I'm Ziyoda from Uzbekistan <img src="https://media0.giphy.com/media/E1w0yvMxBIv5M8WkL8/giphy.gif?cid=ecf05e47zks1ransolfx8i0lufgvfoizfzi9tl6j5753skbe&ep=v1_gifs_search&rid=giphy.gif&ct=g" width="180px">
 
