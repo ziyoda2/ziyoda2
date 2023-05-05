@@ -2,5 +2,3 @@
 
 i'm a programmist. <br/>
 i stady and i like travel a lot. <br/>
-
-HAVE A GOOD DAY AND LOVE YOURSELF!!!
